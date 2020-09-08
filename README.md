@@ -1,0 +1,2 @@
+# Mamon
+veriska amalyot
